@@ -240,4 +240,4 @@ Predecessor is offered as a complete free version with all features and updates 
 Don't wait any longer! **Download Predecessor free today** and jump into the action-packed world of strategic team battles!
 
 ---
-**Last updated:** 2026-10-26 17:56:33 UTC
+**Last updated:** 2026-10-26 22:12:03 UTC
